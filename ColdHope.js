@@ -1,0 +1,1 @@
+'Cold Hope are waiting someone every day and night, Still paying attention for useless code'
